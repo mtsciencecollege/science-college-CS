@@ -1,1 +1,1 @@
-### Science College Mount Lavinia Coming Soon Web
+### Science College Mount Lavinia Coming Soon Site
